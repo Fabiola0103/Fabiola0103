@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Fabiola :)
-- 👀 I’m interested in growing as a ux designer (and a job offer, if you like hehe)
+- 👀 I’m interested in growing as a ux designer (and a job offer, if you want hehe)
 - 🌱 I’m currently learning how to build stuff with figma, html and css
 - 💞️ I’m looking to collaborate on ux design projects
 - 📫 You can e-mail me at fabi.az.0103@gmail.com
